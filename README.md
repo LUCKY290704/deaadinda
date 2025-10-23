@@ -1,0 +1,2 @@
+# deaadinda
+buat kamu
